@@ -1,5 +1,8 @@
 # Tì-sek
 - [koan-liām sú](koan-liām sú)
+- [Hoat lu̍t sú](Hoat-lu̍t-sú)
+- [Thóng kè_ha̍k_kap_si̍t sip](Thóng-kè_ha̍k_kap_si̍t-sip)
+
 
 #  sū-bū
 - [Jīm-bū kap sî-kan-kui-ōe](Jīm-bū kap sî-kan-kui-ōe)
