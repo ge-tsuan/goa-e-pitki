@@ -1,1 +1,2 @@
-- [Ji̍t bûn](Ji̍t-bûn)
+ㄨㄜ- [Ji̍t bûn](Ji̍t-bûn)
+
