@@ -1,5 +1,7 @@
 [Kì sū pún](Kì-sū-pún)
 
+
+[測試](測試)
 # Tì-sek
 - [koan-liām sú](koan-liām sú)
 - [Hoat lu̍t sú](Hoat-lu̍t-sú)
